@@ -1,1 +1,1 @@
-# Assignment-1
+# Namaz Info
